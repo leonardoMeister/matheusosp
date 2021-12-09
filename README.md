@@ -2,8 +2,9 @@
 
 
 <p align="left"> 
-     Hi there, I'm Matheus 👋
-
+     hello, I'm the god Matheus 👋
+Rrrsrs, valeu a dica, vou fazer um pra mim também.
+     fica o EasterEgg aqui.
   - 🌱 I’m currently learning everything 
   - 👯 I’m looking to collaborate with other content creators
 
